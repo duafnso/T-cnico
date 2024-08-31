@@ -1,1 +1,1 @@
-# T-cnico
+# Tecnico
